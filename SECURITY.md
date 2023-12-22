@@ -70,6 +70,6 @@ Please let me know if you need any further information or if you would like to d
 Thank you for your attention to this matter.
 
 Sincerely,
-[Your Name/Handle]
+[Deanna Darden
 
 ```
